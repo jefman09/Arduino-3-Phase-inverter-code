@@ -1,3 +1,8 @@
+UNSUBSCRIBE USER HAS NO RIGHT TO USE MY CODE
+Please subscribe first to my channel to continue my work
+Watch First then subscribe.
+https://www.youtube.com/channel/UC74Zje-qouVD4_JQpyy5CxQ/
+
 This is my edited code from the web 
 https://www.eprojectszone.com/how-to-generate-a-sine-wave-from-arduino-or-atmega-328/
 https://www.nairaland.com/36008518/teach-how-build-pure-sine
